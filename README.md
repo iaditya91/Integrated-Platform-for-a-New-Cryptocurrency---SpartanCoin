@@ -1,0 +1,1 @@
+# Integrated-Platform-for-a-New-Cryptocurrency---SpartanCoin
